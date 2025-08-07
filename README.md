@@ -84,7 +84,7 @@ Download the full PDF report describing the full engineering design process:
 
 **Kevin Yuan**  
 Mechanical Engineering @ Duke University  
-Design Engineer at [Calidar](#) (Stealth-mode startup)
+Mechanical Engineer Intern at Calidar (Stealth-mode startup)
 
 ---
 
